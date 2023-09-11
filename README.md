@@ -16,7 +16,7 @@ Contributions are welcome on all of my projects!
 **LONKS (and other wooly friends)**
 You can follow me in these places, just like a sheep
 
-[GameBanana](https://gamebanana.com/members/1717449)
+[GameBanana](https://gamebanana.com/members/1717449)  
 [Sonic 3 AIR ProBoards](https://sonic3air.boards.net/user/258)
 
 
