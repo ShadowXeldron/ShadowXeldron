@@ -17,8 +17,8 @@ I have other projects as well but they aren't my main focuses right now.
 You can follow me in these places, just like a sheep
 
 [GameBanana](https://gamebanana.com/members/1717449)  
-[Sonic Stadium Message Boards](https://www.sonicstadium.org/profile/47727-shadowxeldron/)
-[Discord]: shadowxeldron
+[Sonic Stadium Message Boards](https://www.sonicstadium.org/profile/47727-shadowxeldron/)  
+Discord: shadowxeldron
 
 
 <!---
