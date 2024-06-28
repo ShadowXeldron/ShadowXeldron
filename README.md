@@ -2,7 +2,7 @@
 
 I'm a human bean (maybe I'm also a zombie since my brain is rotting) who goes around pretending to be an evil version of a pixelated dragon. I mainly make mods for Sonic 3 Angel Island Revisited
 
-I like Sonic, Mega Man, Mario, Doom, Pokemon, Minecraft, Terraria, Linux, Dogs and computing in general. I've also recently gotten into the Ur-Quan Masters (also known as Star Control 2).
+I like Sonic, Mega Man, Mario, Doom, Pokemon, Minecraft, Shin Megami Tensei, The Ur-Quan Masters, Terraria, Linux, Dogs and computing in general.
 
 **MY PROJECTS**
 Contributions are welcome on all of my projects!
